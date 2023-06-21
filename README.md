@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NicotinaGrey
+- 👀 I’m interested in games and learning things
+- 🌱 I’m currently learning about this world
